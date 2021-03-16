@@ -1,1 +1,0 @@
-# nyearsamson_prelimexam
